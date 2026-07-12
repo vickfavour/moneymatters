@@ -62,7 +62,7 @@ Welcome to **Money Matters** — a cash and data giveaway sponsored by **Young D
 |----------|------|
 | 📧 Email | [bigdollar7000@gmail.com](mailto:bigdollar7000@gmail.com) |
 | ✈️ Telegram | [@vick_favour](https://t.me/vick_favour) |
-| 💬 WhatsApp | [+234 902 527 0610](https://wa.me/2349025270610) |
+| 💬 WhatsApp | [+234 816 510 4728](https://wa.me/2348165104728) |
 
 ---
 
